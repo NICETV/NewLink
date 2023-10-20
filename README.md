@@ -1,5 +1,4 @@
-<p>收藏此页面，永不迷路，快速回家</p>
-<p>###更新时间2023-10-20###</p>
+<p>NICE视频最新地址，收藏此页面，永不迷路</p>
 <p>NICE视频最新地址1：https://www.nicetv01.com</p>
 <p>NICE视频最新地址2：https://www.nicetv02.com</p>
 <p>NICE视频最新地址3：https://www.nicetv03.com</p>
