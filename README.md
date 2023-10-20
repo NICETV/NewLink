@@ -1,10 +1,8 @@
 <p>NICE视频最新地址，收藏此页面，永不迷路</p>
-<p>NICE视频最新地址1：https://www.nicetv01.com</p>
-<p>NICE视频最新地址2：https://www.nicetv02.com</p>
-<p>NICE视频最新地址3：https://www.nicetv03.com</p>
-<p>NICE视频最新地址4：https://www.nicetv04.com</p>
-<p>NICETV官网永久地址1（梯子访问）：https://www.nicetv.org</p>
-<p>NICETV官网永久地址2（梯子访问）：https://www.nicetv.cc</p>
+<p>最新入口：https://22168.xyz</p>
+<p>永久入口：https://ncnc.top</p>
+<p>永久地址1：https://www.nicetv.cc</p>
+<p>永久地址2：https://www.nicetv.org</p>
 <p>NICE视频TG官方交流群：https://t.me/nicetv</p>
 <p>NICE视频官方唯一邮箱：nicetvsp@gmail.com</p>
 <p>（发送任意内容到邮箱即可获取最新地址）</p>
