@@ -5,7 +5,7 @@
 <p>永久地址2：https://www.nicetv.org</p>
 <p>官网推特：https://twitter.com/nicetv</p>
 <p>官方TG群：https://t.me/nicetv</p>
-<p>官方唯一邮箱：<a href="mailto:nicetvsp@gmail.com>nicetvsp@gmail.com</a></p>
+<p>官方唯一邮箱：<a href="mailto:nicetvsp@gmail.com">nicetvsp@gmail.com</a></p>
 <p>（发送任意内容到邮箱即可获取最新地址）</p>
 <hr>
 <p>###温馨提示###</p>
