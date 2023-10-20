@@ -3,8 +3,9 @@
 <p>永久入口：https://ncnc.top</p>
 <p>永久地址1：https://www.nicetv.cc</p>
 <p>永久地址2：https://www.nicetv.org</p>
-<p>NICE视频TG官方交流群：https://t.me/nicetv</p>
-<p>NICE视频官方唯一邮箱：nicetvsp@gmail.com</p>
+<p>官网推特：https://twitter.com/nicetv</p>
+<p>官方TG群：https://t.me/nicetv</p>
+<p>官方唯一邮箱：nicetvsp@gmail.com</p>
 <p>（发送任意内容到邮箱即可获取最新地址）</p>
 <hr>
 <p>###温馨提示###</p>
