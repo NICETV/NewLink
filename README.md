@@ -1,6 +1,5 @@
 <p>NICE视频最新地址，收藏此页面，永不迷路</p>
 <p>最新入口：https://22168.xyz</p>
-<p>永久入口：https://ncnc.top</p>
 <p>永久地址1：https://www.nicetv.cc</p>
 <p>永久地址2：https://www.nicetv.org</p>
 <p>官方唯一邮箱：<a href="mailto:nicetvsp@gmail.com">nicetvsp@gmail.com</a></p>
